@@ -1,2 +1,15 @@
 # Swanswing-AssetInstaller
 Asset Installer for SwanSwing
+
+PLEASE BE WARNED THAT ITS NOT MY FAULT IF YOUR PC OR DICK FRIES BECAUSE OF DOWNLOADING SOME THINGS ON THE INTERNET THATS 100% GONNA GIVE YOU A VIRUS
+Please download from trusted sources 
+
+ 
+ 
+PC
+-RELEASED
+
+ANDROID
+-In Development
+
+
